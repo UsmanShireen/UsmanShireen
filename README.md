@@ -45,7 +45,7 @@ Hi 👋, I'm Usman
 📫 Contact
 
 - LinkedIn:https://www.linkedin.com/in/usman-shireen-4211262b7?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
-- Email: usmanayan06@gmail.com
+- Email:usmanayan06@gmail.com
 
 ---
 
